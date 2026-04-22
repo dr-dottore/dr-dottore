@@ -11,7 +11,7 @@
 <p align="center">
 𓎠𓎠　˘　they　 𓈒　them　　 ིܳ   𐂯    ֢ 
 <p align="center">
-⏔‿◞ ྀི꒰ ᧔ෆ᧓ ꒱ ྀི◟‿⏔
+⏔‿◞ ྀི꒰ ᧔ෆ᧓ ꒱  ྀི◟‿⏔
 
 <p align="center">
 <img src="https://64.media.tumblr.com/601cd480345fe95758c15d736f85e8fc/7f0dfe165277a14d-d6/s400x600/87a9ecc6499b03977f49e2e151bf08cfc56228fb.pnj">
